@@ -129,9 +129,6 @@
 
 ---
 
-This detailed itinerary gives you a better idea of what to expect during your coastal exploration day. Let me know if you need any more information or adjustments!
----
-
 ### **Day 7: Blue Line Park and Coastal Exploration (24th October 2024)**
 
 1. **Breakfast at Haeundae Grilled Fish Restaurant**  
@@ -164,7 +161,6 @@ This detailed itinerary gives you a better idea of what to expect during your co
 
 7. **Dinner at a Local Seafood Restaurant near Gwangalli Beach**  
    - **Cost**: Varies by meal  
-
 
 ---
 
